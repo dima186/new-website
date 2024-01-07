@@ -1,1 +1,1 @@
-<seria A news
+seria A news
